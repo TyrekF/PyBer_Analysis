@@ -15,7 +15,7 @@ The images below will give a compelling summary of our findings.
 
 
 # Summary
-We should focus on targeting the drivers yield. If we were to increase the drivers in the rural and suburban area we would be able to serve them more efficiently. In the Urban area we see we have more drivers in than riders. IF we were to create incentives we could use those surplus of drivers to help accommodate the other areas. This would bring in more revenue without underserving the urban community.  
+We should focus on targeting the drivers yield. If we were to increase the drivers in the rural and suburban area we would be able to serve them more efficiently. In the Urban area we see we have more drivers than riders. IF we were to create incentives we could use those surplus of drivers to help accommodate the other areas. This would bring in more revenue without underserving the urban community.  
 
 
 
